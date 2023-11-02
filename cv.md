@@ -19,9 +19,10 @@
 **_My strengths:_**
 
 1. I'm a fast learner
-2. stress-resistant
-3. high soft skill
-4. hardworking
+2. Stress-resistant
+3. High soft skill
+4. Hardworking
+5. I never give up
 
 ---
 
